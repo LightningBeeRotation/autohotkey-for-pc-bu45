@@ -1,4 +1,4 @@
-# 
+# Enhance AutoHotkey for PC | AutoHotkey for Windows with professional AutoHotkey for PC | AutoHotkey for Windows Script | keyboard-shortcuts + mouse-utilities, the #1 script.
 
 
 
